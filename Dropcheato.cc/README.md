@@ -1,3 +1,3 @@
 # RustInternal
 
-RUST RUST RUST OMGGGGG 
+cyber tried selling on alt so leaked before he did
