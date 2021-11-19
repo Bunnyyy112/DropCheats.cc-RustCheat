@@ -1,3 +1,3 @@
 # RustInternal
 
-cyber tried selling on alt so leaked before he did
+You Fuming when its pasted from bditt source harvey mald some more kid
