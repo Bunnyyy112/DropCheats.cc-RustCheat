@@ -1,3 +1,3 @@
 # RustInternal
 
-You Fuming when its pasted from bditt source harvey mald some more kid
+Harvey Brought from Bditt this source is start dropcheats i have pics and dms from Bditt saying and showing me proof on so
