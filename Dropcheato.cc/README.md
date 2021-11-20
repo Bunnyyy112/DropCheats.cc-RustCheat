@@ -1,3 +1,3 @@
 # RustInternal
 
-Harvey Brought from Bditt this source is start dropcheats plus its wank code and he keeps capping saying he gave it to learn like mate we was coding before you even left school kid cry some more
+Harvey Brought from Bditt this source is start dropcheats plus its wank code and he keeps capping saying he gave it to learn like mate we was coding before you even left school kid cry some more plus its bditt code you brought it off him so stfu cant even code your own cheat plus ur upto date dropcheats source dave gave u most help to change the whole thing u have 2 devs who called you out bad dev to me in chat i have pics and they stated also u got booted from the teamand you claim u have best code and best cheat mate look at this code id rather throw up and die than use this!
